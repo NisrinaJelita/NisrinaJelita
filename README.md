@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @NisrinaJelita
 - 👀 I’m interested in reading novels
-- 🌱 I’m currently learning photography
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me nisrinajelita@gmail.com
 
 <!---
